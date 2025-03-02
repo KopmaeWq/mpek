@@ -2,6 +2,11 @@
 
 De 97e Academy Awards zullen plaatsvinden in het Dolby Theatre in Hollywood, waarmee een van de meest fel bevochten en onvoorspelbare Oscarseizoenen in jaren wordt afgesloten. Met nog verschillende belangrijke categorieën die nog te winnen zijn, wordt verwacht dat de ceremonie voor het eerst winnaars en enkele verrassende uitkomsten zal bevatten.
 
+<h3><a href="https://tinyurl.com/yyhvh6eh">🔴🌍📺📱👉 Oscars 2025 live op tv</a></h3>
+
+<h3><a href="https://tinyurl.com/yyhvh6eh">🔴🌍📺📱👉 Oscars 2025 live op tv</a></h3>
+
+
 De Oscars van 2025 zijn vanavond. Hier leest u hoe u de Academy Awards live kunt bekijken en wat u moet weten
 
 De grootste filmavond is vanavond, want de grootste sterren van Hollywood komen opdagen voor de 97e jaarlijkse Academy Awards. De topgenomineerden voor de Oscars van 2025 zijn "Emilia Pérez", met in totaal 13 nominaties, en "The Brutalist" en "Wicked", met elk 10 nominaties.
